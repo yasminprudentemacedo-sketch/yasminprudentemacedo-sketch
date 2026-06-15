@@ -1,10 +1,10 @@
 
 ## Prazer Yasmin
-## gosto de greys'anatomy🫀.
-## gosto de jogos🎮.
-## gosto de filme e seriés🎞️.
-## gosto de harry potter🧙.
-## gosto de ler📖.
+🫀gosto de greys'anatomy.
+🎮gosto de jogos.
+🎞️gosto de filme e seriés.
+🧙gosto de harry potter.
+📖 gosto de ler📖.
 
 entre em contato:
 yasmin.prudente.macedo@escola.pr.gov.br

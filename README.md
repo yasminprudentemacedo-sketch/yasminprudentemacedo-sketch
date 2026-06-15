@@ -8,4 +8,4 @@
 
 entre em contato:
 yasmin.prudente.macedo@escola.pr.gov.br
-![](https://media1.tenor.com/m/qyBa4nzQL38AAAAd/greys-anatomy-george-omalley.gif)
+![](https://media1.tenor.com/m/qyBa4nzQL38AAAAd/greys-anatomy-george-omalley.gif) ![](https://media1.tenor.com/m/MSlshZS6CVYAAAAC/satoru-gojo---correndo.gif)
